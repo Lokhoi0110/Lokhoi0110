@@ -1,0 +1,4 @@
+- 👋 Hello, I'm Lokhoi0110
+- 👀 I am interested in opportunities to work, practice and consolidate my knowledge
+- 🌱 I am studying at Thai Nguyen University of Information and Communication Technology (ICTU)
+- 📫Contact me via Email:lokhoi3003@gmail.com
